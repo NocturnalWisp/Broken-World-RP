@@ -4,4 +4,4 @@ This site describes how I did it: https://dht.chylex.com/
 
 Just open up the viewer on that sight to read the chat log.
 
-Make sure to check out the discord! 
+Make sure to check out the discord! https://discord.gg/cqhp7DX
